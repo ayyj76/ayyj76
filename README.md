@@ -10,12 +10,5 @@
 ## MyAccounts
 - Email: yujiann111@gmail.com
 
-## Projects
-沉淀ing  <br>
-<br>
-<br>
-<br>
-<br>
-<br>
-<br>     
+   
 *Work and live in a low-key manner.*
